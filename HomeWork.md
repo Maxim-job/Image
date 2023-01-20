@@ -19,3 +19,6 @@ https://www.google.com/search?q=df&oq=df&aqs=chrome..69i57j0i512j0i1i10i512j0i51
 
 ## Статистика
 
+1. 23% - прожиточный минимум
+2. 77 - тоже чето 
+
